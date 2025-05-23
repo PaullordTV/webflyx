@@ -1,0 +1,3 @@
+- Wirf ihn rein Frodo 
+- Mein Schatz
+- Der Ring um sie alle zu knechten
